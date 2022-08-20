@@ -1,0 +1,1 @@
+So i wrote it earlier. If i have freetime im going to horse rideing, scuba diving and the shooting range, and two times a week go to boxing. And there is a lot of things what i like to do. For example go swimming, go fishing, go hiking.
